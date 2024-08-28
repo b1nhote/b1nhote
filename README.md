@@ -11,6 +11,6 @@ My name is Enzo Ferregutti
 - ferreguttienoz@gmail.com
 
 - @ferreguttienoz
-  
 
+![](https://media.tenor.com/i1RnhWXbKXkAAAAi/thumbs-up-cat.gif)
 
